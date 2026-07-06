@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-COGA910706HBCNRN02
+COGA910706HBCNRN02
